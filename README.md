@@ -1,5 +1,5 @@
 # Nandini Sreekumaran Nair 🚀  
-[LinkedIn]([https://linkedin.com](https://www.linkedin.com/in/nandini-sreekumaran-nair-963609169/)) | [Portfolio](#) 
+[LinkedIn]([https://linkedin.comhttps://www.linkedin.com/in/nandini-sreekumaran-nair-963609169/)])
 
 👋 Hi, I'm Nandini S Nair, a Data Analyst/Engineer with hands-on experience of 3 years in Machine Learning, AI, LLMs, Data Visualization, and Cloud Technologies!  
 
