@@ -61,7 +61,7 @@ I specialize in transforming data into insights and leveraging AI models for sol
 ## 📫 How to Reach Me  
 
 - **Email:** nandinisnair97@gmail.com  
-- **LinkedIn:** https://www.linkedin.com/in/nandini-sreekumaran-nair-963609169/
+- **LinkedIn:** https://www.linkedin.com/in/nandinisnair97/
 
 ---
 
